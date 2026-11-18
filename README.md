@@ -82,7 +82,7 @@ pula **versi Full-Stack** yang sudah lengkap, mencakup:
 Untuk demo, kolaborasi, atau lisensi versi Full-Stack, hubungi langsung:
 
 - 🌐 **https://vallportofolio.web.app**
-- 💬 **WhatsApp: [tulis nomor WhatsApp-mu di sini]**
+- 💬 **WhatsApp: [6287825677105]**
 
 ---
 
